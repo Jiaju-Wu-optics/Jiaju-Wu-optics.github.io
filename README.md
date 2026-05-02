@@ -1,1 +1,1 @@
-# Jiaju-Wu.github.io
+# JiajuWu.github.io
